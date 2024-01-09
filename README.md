@@ -1,7 +1,8 @@
 Hey!!!
 This is Farzia Ghafory.
 
-![Pic](https://playgroundai.com/post/cipher-hacker-hoodie-hacking-dark-bedroom-close-up-por-cln0q8mcm048as601om9g2nj0)
+![Pic](![72988a59b0a04cecb66a470309cea292](https://github.com/farziaghafory/farziaghafory/assets/152214998/0484d668-cf35-46d7-916b-b5de23870dfb)
+)
 
 
 - 🔭 I’m currently working on ...
