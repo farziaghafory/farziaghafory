@@ -1,6 +1,8 @@
 Hey!!!
 This is Farzia Ghafory.
-<img src="https://playgroundai.com/post/cipher-hacker-hoodie-hacking-dark-bedroom-close-up-por-cln0q8mcm048as601om9g2nj0" alt="programmer">
+<a href="URL_REDIRECT" target="blank"><img align="center" src="https://playgroundai.com/post/cipher-hacker-hoodie-hacking-dark-bedroom-close-up-por-cln0q8mcm048as601om9g2nj0" height="100" /></a>
+
+
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
