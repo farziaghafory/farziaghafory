@@ -8,7 +8,6 @@ This is Farzia Ghafory.
 - 🌱 I’m currently learning codig
 - 🤔 I’m looking for help with everythig I can
 - 📫 How to reach me: [Email me](mailto:ghaforyfarzia@gmail.com)
+- 😄 Pronouns: She/her
 
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
