@@ -1,7 +1,7 @@
 Hey!!!
 This is Farzia Ghafory.
 
-![Alt text](https://playgroundai.com/post/cipher-hacker-hoodie-hacking-dark-bedroom-close-up-por-cln0q8mcm048as601om9g2nj0)
+![Pic](https://playgroundai.com/post/cipher-hacker-hoodie-hacking-dark-bedroom-close-up-por-cln0q8mcm048as601om9g2nj0)
 
 
 - 🔭 I’m currently working on ...
