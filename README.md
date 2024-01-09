@@ -1,10 +1,6 @@
-### Hi there 👋
-
-<!--
-**farziaghafory/farziaghafory** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
+Hey!!!
+This is Farzia Ghafory.
+<img src="https://playgroundai.com/post/cipher-hacker-hoodie-hacking-dark-bedroom-close-up-por-cln0q8mcm048as601om9g2nj0" alt="programmer">
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
