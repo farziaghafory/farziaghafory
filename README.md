@@ -7,7 +7,7 @@ This is Farzia Ghafory.
 🌙 Dreaming in code, waking up to amazing websites ✨
 - 🌱 I’m currently learning coding
 - 🤔 Can help with everythig I can
-- 📫 How to reach me: [Email me](mailto:ghaforyfarzia@gmail.com)
+- 📫 How to reach me: [Email Address](mailto:ghaforyfarzia@gmail.com)
 - 😄 Pronouns: She/her
 
 
